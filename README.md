@@ -1,1 +1,1 @@
-AWS Solutions Architect
+Certifications - Vincent GOH
